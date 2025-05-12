@@ -1,2 +1,2 @@
-# cedte
-deneme
+# BETKANYON
+Betkanyon güncel giriş adresi
